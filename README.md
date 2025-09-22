@@ -8,7 +8,13 @@
 [![Github stats](https://github-readme-stats.vercel.app/api?username=valeriemazza&show_icons=true&include_all_commits=true)](https://github.com/valeriemazza/github-readme-stats)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=valeriemazza&layout=compact)](https://github.com/valeriemazza/github-readme-stats)
 
-
+Fun Facts about me:
+- I am really good at sales and have over 20 years experience including 10 years as a real estate broker.
+- I love dogs and I am a dog mom to Buddy Boo
+- I am an avid runner and have completed marathons
+- I was a professional tennis player while growing up in France
+- I can back a semi truck into a spot like it's nobody's business.
+- I was a fitness competitor during my prime and only have pictures to prove it.  
 
 
 
