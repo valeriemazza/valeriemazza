@@ -10,9 +10,9 @@
 
 Fun Facts about me:
 - I am really good at sales and have over 20 years experience including 10 years as a real estate broker.
-- I love dogs and I am a dog mom to Buddy Boo
-- I am an avid runner and have completed marathons
-- I was a professional tennis player while growing up in France
+- I love dogs and I am the best mom Buddy Boo ever had. He'll tell you all about it.
+- I am an avid runner, marathon runner to be exact.
+- I was a professional tennis player while growing up in France.
 - I can back a semi truck into a spot like it's nobody's business.
 - I was a fitness competitor during my prime and only have pictures to prove it.  
 
