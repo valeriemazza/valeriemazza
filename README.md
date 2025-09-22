@@ -1,4 +1,4 @@
-<h1>Hi, I'm Valerie!  <a href="https://www.linkedin.com/in/valeriemazza/">Cybersecurity Professional</a>
+<h1>Hi, I'm Valerie!  <a href="https://www.linkedin.com/in/valeriemazza/">Business Intelligence Analyst</a>
 
 <h2> Cybersecurity Projects:</h2>
 
