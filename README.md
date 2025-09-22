@@ -14,7 +14,7 @@
 - 🎨I am a famous Chicago artist, who creates large abstract paintings.😮
 - 🏃I am an avid runner, marathon runner to be exact.🏆
 - 🎾I was a professional tennis player while growing up in France.🇫🇷
-- 🚚I can back a semi truck into a spot like it's nobody's business.😎
+- 🚚I can back a semi truck like it's nobody's business.😎
 - 💪I was a fitness competitor during my prime and only have pictures to prove it.👙  
 
 
